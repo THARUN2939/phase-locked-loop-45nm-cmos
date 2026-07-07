@@ -294,7 +294,7 @@ VIT University, Vellore
 
 GitHub: https://github.com/THARUN2939
 
-LinkedIn: https://linkedin.com/in/yourprofile
+
 
 ---
 
